@@ -1,1 +1,1 @@
-personal website [tomasbrezina.sk](tomasbrezina.sk](https://tomasbrezina.sk/)
+personal website (https://tomasbrezina.sk/)
